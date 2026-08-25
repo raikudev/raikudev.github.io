@@ -1,2 +1,2 @@
 # raikudev.github.io
-e
+hi im raiku! :D
